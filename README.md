@@ -1,5 +1,14 @@
+[Ways To Help: Petitions, Donate, Protests, Education](https://blacklivesmatters.carrd.co)
+
 [THE FANTASY WORLD MASTER LIST OF RESOURCES ON HOW TO DISMANTLE SYSTEMIC RACISM](http://pfw.guide/)
 
+***
+
+### Black Trans Lives Matter
+
+- [Actions and Recources for Solidarity](https://docs.google.com/document/d/10M1ZuGcRPMYMNxOfT7b5t-X4R1wsfkVnRGOUXw3sHTw/edit?usp=drivesdk)
+
+- [UK - Write to your MP to not roll back Trans Rights](https://gra.good.do/trusstme/trusstme/?utm_campaign=later-linkinbio-genderedintelligence&utm_content=later-7867176&utm_medium=social&utm_source=instagram#action)
 
 ***
 
@@ -53,9 +62,9 @@
 
 - [Green & Black Cross](https://greenandblackcross.org/get-involved/donate/)
 
-- [More anti racism orgs and accounts to follown](https://docs.google.com/document/d/1yyzkmzVjt-fiidV5XIG723DAj4Dib9V3mcmMwFsAvbc/edit?usp=sharing)
+- [More anti racism orgs and accounts to follow](https://docs.google.com/document/d/1yyzkmzVjt-fiidV5XIG723DAj4Dib9V3mcmMwFsAvbc/edit?usp=sharing)
 
-***
+- [Stream to Donate](https://youtu.be/bCgLa25fDHM)
 
 ### Protesting
 
@@ -65,6 +74,8 @@
 
 - [Cop spotting in protests 101](https://docs.google.com/document/d/11v-2VM8QOM4WoSx7oHkycCSiC2AvF5Vz-2iXGxP6PZc/edit?usp=sharing)
 
+- [UK Police Powers to Stop and Search: Your Rights](https://www.gov.uk/police-powers-to-stop-and-search-your-rights)
+
 ***
 
 ### Anti-Racism Ressources
@@ -72,6 +83,8 @@
 - [What to do](https://docs.google.com/document/d/1zh6reFJWkZRGBL5iIezTfA2tkKBB3X9JcMh2QYT8tWk/edit?usp=sharing)
 
 - [Reading material](https://docs.google.com/document/d/1kwDGZFH2-jFr4xZ2ynxQkihYwIVh_uZlp1-Q73uXzso/edit?usp=sharing)
+
+- [Anti-Racism Recources](https://docs.google.com/document/d/1BRlF2_zhNe86SGgHa6-VlBO-QgirITwCTugSfKie5Fs/preview?fbclid=IwAR3uAZ3ISf15n38K-bEKYjk_4D0Ury8k3vTyxNkok_2kOISiID_EmUp9_as&pru=AAABcptnTzA*HkkFeR4zup-cBzvAjeP3aA)
 
 ***
 
