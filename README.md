@@ -1,6 +1,6 @@
 ### Beirut Explosion
 
--[RCD Beirut Fundraiser Donation Link](https://bit.ly/3kNnW8e)
+- [RCD Beirut Fundraiser Donation Link](https://bit.ly/3kNnW8e)
 
 ### BLM
 
