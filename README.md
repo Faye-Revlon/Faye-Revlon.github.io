@@ -1,10 +1,16 @@
+### Beirut Explosion
+
+-[RCD Beirut Fundraiser Donation Link](https://bit.ly/3kNnW8e)
+
+### BLM
+
 [Ways To Help: Petitions, Donate, Protests, Education](https://blacklivesmatters.carrd.co)
 
 [THE FANTASY WORLD MASTER LIST OF RESOURCES ON HOW TO DISMANTLE SYSTEMIC RACISM](http://pfw.guide/)
 
 ***
 
-### Trans Lives Matter
+### Black Trans Lives Matter
 
 - [Colombia's Indigenous Trans Embera Women GoFundMe](https://www.gofundme.com/f/support-colombia-trans-embera-indigenous) 
 
