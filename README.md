@@ -1,6 +1,6 @@
 ### Black Trans Lives Matter
 
-- [Vogue Scotland Funraiser - Raising funds for transition](https://gf.me/u/yzkytd)
+- [Vogue Scotland Fundraiser - Raising funds for transition](https://gf.me/u/yzkytd)
 
 - [Colombia's Indigenous Trans Embera Women GoFundMe](https://www.gofundme.com/f/support-colombia-trans-embera-indigenous) 
 
