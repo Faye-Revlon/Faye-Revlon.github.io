@@ -1,3 +1,7 @@
+### Let It Snow Ball
+
+- ['Let It Snow Ball' Facebook Event Page](https://fb.me/e/WLAc57Oj)
+
 ### Black Trans Lives Matter
 
 - [Vogue Scotland Fundraiser - Raising funds for transition](https://gf.me/u/yzkytd)
