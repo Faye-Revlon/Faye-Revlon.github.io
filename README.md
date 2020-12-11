@@ -1,5 +1,7 @@
 ### Let It Snow Ball
 
+- [Let It Snow Donations - Fundraising for Makayla Revlon's Trans Healthcare](https://paypal.me/pools/c/8uUzKnEkQO) 
+
 - ['Let It Snow Ball' Facebook Event Page](https://fb.me/e/WLAc57Oj)
 
 ### Black Trans Lives Matter
