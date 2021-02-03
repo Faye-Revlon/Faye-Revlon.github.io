@@ -1,3 +1,5 @@
+- [Email Template by WEEXIST to the abhorrent planned consultation on gender policing of public toilets in the UK](https://docs.google.com/document/d/1cZ4Vw4rfVV2GqF4y3cToIHApxGhpoop38x8FTwkGj0c/edit)
+
 ### Let It Snow Ball
 
 - ['Let It Snow Ball' Facebook Event Page](https://fb.me/e/WLAc57Oj)
